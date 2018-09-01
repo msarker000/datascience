@@ -1,2 +1,11 @@
-# homework_01
-HW1:P6 Set up a GITHUB account  
+
+
+
+
+
+
+
+
+1. Md Ayub Ali Sarker
+2. msarker000
+3. ayub.ali.sarker@gmail.com 
